@@ -56,4 +56,4 @@ _tbd_
   
 **Attendance Tracking**  
 
-Please mark your attendances in [this excel sheet](https://owncloud.gwdg.de/index.php/s/QOdd05R78vtMfg6) the latest after each session (18:00).
+Please mark your attendances in [this excel sheet](https://owncloud.gwdg.de/index.php/s/oSiOlycWlco4ZMj) the latest after each session (18:00).
