@@ -6,7 +6,7 @@ Lecturer: Alexander Walmsley | a.walmsley@filmuniversitaet.de
 
 Wednesdays 16:00 h - 17:30 h  
 
-**Syllabus**  
+**Sessions**  
 
 02.04.24  
 _No Seminar_  
