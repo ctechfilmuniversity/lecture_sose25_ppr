@@ -22,7 +22,7 @@ _No Seminar (Sehsüchte)_
 _tbd_  
   
 07.05.24  
-Gonzalo Rodriguez, PhD Candidate, Filmuniversität
+Gonzalo Rodriguez, PhD Candidate, Filmuniversität  
 _Villa Futuro_  
 **Link**: https://villafuturo.com/ 
   
