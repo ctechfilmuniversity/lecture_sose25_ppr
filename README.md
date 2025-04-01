@@ -24,7 +24,7 @@ _tbd_
 07.05.24  
 Gonzalo Rodriguez, PhD Candidate, Filmuniversität
 _Villa Futuro_  
-**Link**: https://villafuturo.com/[https://villafuturo.com/]  
+**Link**: https://villafuturo.com/ 
   
 14.05.24  
 Francesco Morini, Wissenschaftliche Mitarbeiterin, Filmuniversität  
