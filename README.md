@@ -50,7 +50,7 @@ _Masters Dissertation_
 _tbd_  
   
 25.06.24  
-_tbd_  
+_No Seminar (Interviews)_  
   
 02.07.24   
 _tbd_  
