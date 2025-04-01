@@ -22,7 +22,9 @@ _No Seminar (Sehsüchte)_
 _tbd_  
   
 07.05.24  
-_tbd_  
+Gonzalo Rodriguez, PhD Candidate, Filmuniversität
+_Villa Futuro_  
+*Link*: https://villafuturo.com/[https://villafuturo.com/]  
   
 14.05.24  
 Francesco Morini, Wissenschaftliche Mitarbeiterin, Filmuniversität  
