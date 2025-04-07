@@ -9,7 +9,8 @@ Wednesdays 16:00 h - 17:30 h
 **Sessions**  
   
 09.04.24  
-_tbd_  
+Danylo Okulov (Tonmeister, CX Studio, Filmuniversität)  
+_Procedural Sound with Godot and Blender_  
   
 16.04.24  
 Jonathan Ho, MA Creative Technologies  
@@ -37,7 +38,8 @@ _CTech II Presentation_
 _No Seminar_  
   
 04.06.24  
-_tbd_  
+Till Rückwart (Researcher @Metalab, FU Berlin)  
+_Desktop Documentaries and Social Media in Political Conflicts_  
   
 11.06.24  
 Tim Rumpf, MA Creative Technologies  
