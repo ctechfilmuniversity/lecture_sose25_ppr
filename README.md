@@ -34,6 +34,9 @@ _Project SPLEE (Streaming Plattform für Longreads und Essays aus Europa)_
 Marco Braune, MA Creative Technologies  
 _CTech II Presentation_  
   
+Jacky Lai, MA Creative Technologies  
+_Masters Dissertation_  
+  
 28.05.24  
 _No Seminar_  
   
