@@ -20,7 +20,8 @@ _Masters Dissertation_
 _No Seminar (Sehsüchte)_  
   
 30.04.24  
-_CTech Film Afternoon: Grand Theft Hamlet_  
+CTech Film Afternoon:  
+_Grand Theft Hamlet_  
   
 07.05.24  
 Gonzalo Rodriguez, PhD Candidate, Filmuniversität  
