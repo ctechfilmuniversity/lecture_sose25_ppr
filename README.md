@@ -52,7 +52,8 @@ Aljoscha Dakic, MA Creative Technologies
 _Masters Dissertation_  
   
 18.06.24  
-_tbd_  
+Moritz Huson, MA Creative Technologies  
+_CTech Project_  
   
 25.06.24  
 _No Seminar (Interviews)_  
