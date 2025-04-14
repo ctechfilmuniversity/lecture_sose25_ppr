@@ -53,7 +53,7 @@ _Masters Dissertation_
   
 18.06.24  
 Moritz Huson, MA Creative Technologies  
-_CTech Project_  
+_CTech II Projects_  
   
 25.06.24  
 _No Seminar (Interviews)_  
