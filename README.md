@@ -10,7 +10,7 @@ Wednesdays 16:00 h - 17:30 h
   
 09.04.24  
 Danylo Okulov (Tonmeister, CX Studio, Filmuniversität)  
-_Procedural Sound with Godot and Blender_  
+_Procedural Animation with Godot and Blender_  
   
 16.04.24  
 Jonathan Ho, MA Creative Technologies  
