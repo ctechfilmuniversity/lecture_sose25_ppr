@@ -5,6 +5,7 @@ Lecturer: Alexander Walmsley | a.walmsley@filmuniversitaet.de
 **Organization**  
 
 Wednesdays 16:00 h - 17:30 h  
+Raum 6119  
 
 **Sessions**  
   
