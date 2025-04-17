@@ -55,7 +55,8 @@ _Masters Dissertation_
   
 18.06.24  
 Jacky Lai and João Pedro, MA Studierende, Filmuniversität  
-_Von Likes und Lügen – DIE DIGITALE MACHT DER AFD_  (https://www.filmuniversitaet.de/artikel/detail/von-likes-und-luegen-die-digitale-macht-der-afd)  
+_Von Likes und Lügen – DIE DIGITALE MACHT DER AFD_  
+https://www.filmuniversitaet.de/artikel/detail/von-likes-und-luegen-die-digitale-macht-der-afd  
   
 25.06.24  
 _No Seminar (Interviews)_  
