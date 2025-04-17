@@ -54,8 +54,8 @@ Aljoscha Dakic, MA Creative Technologies
 _Masters Dissertation_  
   
 18.06.24  
-Moritz Huson, MA Creative Technologies  
-_CTech II Projects_  
+Jacky Lai and João Pedro, MA Studierende, Filmuniversität  
+_Von Likes und Lügen – DIE DIGITALE MACHT DER AFD_  
   
 25.06.24  
 _No Seminar (Interviews)_  
