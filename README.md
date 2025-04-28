@@ -62,8 +62,7 @@ https://www.filmuniversitaet.de/artikel/detail/von-likes-und-luegen-die-digitale
 _No Seminar (Interviews)_  
   
 02.07.24   
-Moritz Huson, MA Creative Technologies  
-_CTech II Project(s)_  
+_No Seminar (Instead: Academic Methodologies)_  
   
 **Attendance Tracking**  
 
