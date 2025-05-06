@@ -29,7 +29,7 @@ Gonzalo Rodriguez, PhD Candidate, Filmuniversität
 _Villa Futuro_  (https://villafuturo.com/)
   
 14.05.24  
-Francesco Morini, Wissenschaftliche Mitarbeiterin, Filmuniversität  
+Francesca Morini, Wissenschaftliche Mitarbeiterin, Filmuniversität  
 _Project SPLEE (Streaming Plattform für Longreads und Essays aus Europa)_  
 
 21.05.24  
